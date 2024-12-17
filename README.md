@@ -1,2 +1,1 @@
-# Soon
-
+# lAGI BUAT DESAIN DULU DI FIGMAA
